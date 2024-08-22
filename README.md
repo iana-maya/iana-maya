@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @iana-maya
 - 👀 I’m interested in Video Games and Food!
 - 🌱 I’m currently learning How to be a Programmer B)
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on [currently nothing]
+- 📫 How to reach me creative.ayalei@gmail.com
 - 😄 Pronouns: She/They
 - ⚡ Fun fact: I am heavily fascinated by star wars and The Souls series!!
 
